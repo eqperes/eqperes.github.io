@@ -6,7 +6,7 @@ tags:
   - Christianisme 
 ---
 
-_Ce texte est une traduction en Français d'un extrait du sermon présent dans le film "Tree of Life" de Terrence Malick._
+_Ce texte est une traduction en Français du sermon présent dans le film "Tree of Life" de Terrence Malick._
 
 --- 
 
