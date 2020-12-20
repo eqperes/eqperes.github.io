@@ -76,11 +76,11 @@ En accord avec certains exégètes, je voudrais faire une suggestion supplément
 
  
 
-    1 C'est pourquoi, frères, je vous prie, par les miséricordes de Dieu, de vous offrir en sacrifice vivant, saint et agréable à Dieu ; c'est là votre culte rationnel.
-    2 Ne vous modelez pas sur le modèle de ce monde, mais soyez transformés par le renouvellement de votre esprit, afin de pouvoir expérimenter et prouver la bonne, agréable et parfaite volonté de Dieu.
-    3 Car, par la grâce qui m'a été accordée, je vous dis à tous : que nul ne se conçoive plus haut qu'il ne le devrait ; mais au contraire, qu'il se conçoive de façon équilibrée, selon la mesure de foi que Dieu lui a donnée.
+> 1 C'est pourquoi, frères, je vous prie, par les miséricordes de Dieu, de vous offrir en sacrifice vivant, saint et agréable à Dieu ; c'est là votre culte rationnel.
+> 2 Ne vous modelez pas sur le modèle de ce monde, mais soyez transformés par le renouvellement de votre esprit, afin de pouvoir expérimenter et prouver la bonne, agréable et parfaite volonté de Dieu.
+> 3 Car, par la grâce qui m'a été accordée, je vous dis à tous : que nul ne se conçoive plus haut qu'il ne le devrait ; mais au contraire, qu'il se conçoive de façon équilibrée, selon la mesure de foi que Dieu lui a donnée.
 
-    (Lettre de Paul aux Romains 12.1-3)
+> (Lettre de Paul aux Romains 12.1-3)
 
  
 Déjà dans ces premiers versets, nous avons un retour sur ces thèmes fondamentaux de Genèse 1-2, et l'enseignement de la grâce de Dieu comme base de tout ce que nous sommes :
@@ -92,19 +92,19 @@ Déjà dans ces premiers versets, nous avons un retour sur ces thèmes fondament
 Pour comprendre ce qui se passe, il faut remonter aux Romains, chapitre 1. Là, Paul fait référence aux trois points ci-dessus lorsqu'il décrit notre condition d'êtres humains déchus :
  
 
-    18 C'est pourquoi la colère de Dieu se révèle du ciel contre toute impiété et toute injustice des hommes qui suppriment la vérité par l'injustice,
-    19 Car ce qui peut être connu de Dieu est manifeste parmi eux, parce que Dieu le leur a révélé.
-    20 Car depuis la création du monde, les attributs invisibles de Dieu, sa puissance éternelle et sa nature divine, sont clairement visibles, étant compris par les choses créées, de sorte que de tels hommes sont inexcusables ;
-    21 pour avoir connu Dieu, ils ne l'ont pas glorifié comme Dieu, ni ne lui ont rendu grâce, mais leurs pensées sont devenues vaines, et leurs cœurs insensés se sont assombris.
-    22 Se disant sages, ils devinrent fous
-    23 et a échangé la gloire du Dieu immortel contre des images faites à la ressemblance de l'homme mortel, ainsi que des oiseaux, des quadrupèdes et des reptiles.
-    24 C'est pourquoi Dieu les a livrés à l'impureté sexuelle, selon les désirs pécheurs de leurs coeurs, pour la dégradation de leurs corps entre eux.
-    25 Ils ont échangé la vérité de Dieu contre le mensonge, et ils ont adoré et servi les choses et les êtres créés au lieu du Créateur, qui est béni à jamais. Amen.
-    26 C'est pourquoi Dieu les a livrés à des passions honteuses. Même leurs femmes ont échangé leurs relations sexuelles naturelles contre d'autres, contrairement à la nature.
-    27 De même, les hommes ont également abandonné leurs relations naturelles avec les femmes et se sont enflammés de passion les uns pour les autres. Ils ont commencé à commettre des actes indécents, hommes avec hommes, et ont reçu en eux la punition méritée pour leur perversion.
-    28 De plus, comme ils méprisaient la connaissance de Dieu, il les a livrés à une disposition mentale reprochable, pour pratiquer ce qu'ils ne devaient pas.
+> 18 C'est pourquoi la colère de Dieu se révèle du ciel contre toute impiété et toute injustice des hommes qui suppriment la vérité par l'injustice,
+> 19 Car ce qui peut être connu de Dieu est manifeste parmi eux, parce que Dieu le leur a révélé.
+> 20 Car depuis la création du monde, les attributs invisibles de Dieu, sa puissance éternelle et sa nature divine, sont clairement visibles, étant compris par les choses créées, de sorte que de tels hommes sont inexcusables ;
+> 21 pour avoir connu Dieu, ils ne l'ont pas glorifié comme Dieu, ni ne lui ont rendu grâce, mais leurs pensées sont devenues vaines, et leurs cœurs insensés se sont assombris.
+> 2> 2 Se disant sages, ils devinrent fous
+> 23 et a échangé la gloire du Dieu immortel contre des images faites à la ressemblance de l'homme mortel, ainsi que des oiseaux, des quadrupèdes et des reptiles.
+> 24 C'est pourquoi Dieu les a livrés à l'impureté sexuelle, selon les désirs pécheurs de leurs coeurs, pour la dégradation de leurs corps entre eux.
+> 25 Ils ont échangé la vérité de Dieu contre le mensonge, et ils ont adoré et servi les choses et les êtres créés au lieu du Créateur, qui est béni à jamais. Amen.
+> 26 C'est pourquoi Dieu les a livrés à des passions honteuses. Même leurs femmes ont échangé leurs relations sexuelles naturelles contre d'autres, contrairement à la nature.
+> 27 De même, les hommes ont également abandonné leurs relations naturelles avec les femmes et se sont enflammés de passion les uns pour les autres. Ils ont commencé à commettre des actes indécents, hommes avec hommes, et ont reçu en eux la punition méritée pour leur perversion.
+> 28 De plus, comme ils méprisaient la connaissance de Dieu, il les a livrés à une disposition mentale reprochable, pour pratiquer ce qu'ils ne devaient pas.
 
-    (Lettre aux Romains 1.18-28)
+> (Lettre aux Romains 1.18-28)
 
 - Nous avons donc, d'abord, que les hommes avaient la connaissance de Dieu, mais qu'ils sont devenus ingrats, ne l'adorant pas. L'ingratitude apparaît donc comme l'élément vertical du péché originel ;
 - Pour rechercher la cohérence dans l'ingratitude, les hommes reconstruisent leurs images de l'univers en éliminant le vrai Dieu, ce qui les conduit à l'idolâtrie. Pour rendre possible le remplacement de Dieu par des idoles, l'esprit humain doit plonger dans la folie et le faux raisonnement. **Il y a donc une corruption spirituelle de la rationalité.**
@@ -124,13 +124,13 @@ Renouveler l'esprit c'est donc penser à sa propre existence à partir de cette 
 
 ## Dons spirituels, communauté et identité
 
-    4 Tout comme chacun d'entre nous possède un organe composé de nombreux membres et que ces membres n'exercent pas tous la même fonction,
-    5 Ainsi en Christ, nous qui sommes nombreux, nous formons un seul corps, et chaque membre est relié à tous les autres.
-    6 Nous avons des dons différents, selon la grâce qui nous est accordée. Si quelqu'un a le don de prophétiser, utilisez-le proportionnellement à sa foi
-    7 Si votre don est de servir, servez ; si c'est d'enseigner, enseignez ;
-    8 Si elle doit donner du courage, qu'elle le fasse ; si elle doit contribuer, qu'elle le fasse avec générosité ; si elle doit exercer un leadership, qu'elle l'exerce avec zèle ; si elle doit faire preuve de miséricorde, qu'elle le fasse avec joie.
-
-    (Romains 12:4-8)
+> 4 Tout comme chacun d'entre nous possède un organe composé de nombreux membres et que ces membres n'exercent pas tous la même fonction,
+> 5 Ainsi en Christ, nous qui sommes nombreux, nous formons un seul corps, et chaque membre est relié à tous les autres.
+> 6 Nous avons des dons différents, selon la grâce qui nous est accordée. Si quelqu'un a le don de prophétiser, utilisez-le proportionnellement à sa foi
+> 7 Si votre don est de servir, servez ; si c'est d'enseigner, enseignez ;
+> 8 Si elle doit donner du courage, qu'elle le fasse ; si elle doit contribuer, qu'elle le fasse avec générosité ; si elle doit exercer un leadership, qu'elle l'exerce avec zèle ; si elle doit faire preuve de miséricorde, qu'elle le fasse avec joie.
+> 
+> (Romains 12:4-8)
  
 
 C'est dans cet argument autour de la compréhension de soi que les références de Paul aux dons spirituels sont insérées dans les versets suivants. Les versets 4 à 6 parlent du corps du Christ à travers un parcours argumentatif qui va de la reconnaissance de l'unité à l'accent mis sur la diversité, avec lequel la liste des dons est introduite au milieu du verset 6. Et l'origine de ces différents dons est "la grâce qui nous a été donnée", dit le verset 6.
